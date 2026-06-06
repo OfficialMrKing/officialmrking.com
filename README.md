@@ -1,2 +1,0 @@
-# officialmrking.com
-my website
